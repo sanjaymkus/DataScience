@@ -1,3 +1,5 @@
+https://www.youtube.com/watch?v=H4YcqULY1-Q
+
 **Learn data science step by step in 6 months**
 
 ![](RackMultipart20210906-4-4bpf3n_html_fcf85eabc8c5f2e6.gif)
